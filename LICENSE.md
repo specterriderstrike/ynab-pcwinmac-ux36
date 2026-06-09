@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://specterriderstrike.github.io/ynab-pcwinmac-ux36/) |
  |---------------------|----------------------:|
 
 
